@@ -1,1 +1,1 @@
-khong sua
+sua file ne
